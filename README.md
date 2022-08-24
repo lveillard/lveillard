@@ -1,1 +1,1 @@
-### 📫 How to reach me: loic(at)blitznocode.com
+### 📫 loic(at)blitznocode.com
